@@ -8,21 +8,21 @@ wasn't particularly great at it, but a couple tracks turned out better than the 
 
 ## Running
 
-https://soundcloud.com/verkoeyen/high-school-compositions-running
+https://soundcloud.com/featherless-digital-creative-history/high-school-compositions-running
 
 This track is just a random assortment of loops being taken in and out. Felt to me like running in
 an exaggerated cartoon.
 
 ## Village
 
-https://soundcloud.com/verkoeyen/high-school-compositions-village
+https://soundcloud.com/featherless-digital-creative-history/high-school-compositions-village
 
 My first "melody". The idea popped into my head on the way home from school and I managed to capture
 it once I got home.
 
 ## Delicate feelings
 
-https://soundcloud.com/verkoeyen/high-school-compositions-delicate-feelings
+https://soundcloud.com/featherless-digital-creative-history/high-school-compositions-delicate-feelings
 
 Simply descending. Created this with a video game scene in mind.
 
